@@ -6,7 +6,7 @@ Hello Sister How are you
 
 ## Siikho
 
-* phele Dill kero
+* phele Lick kero
 * phir DIP kero
 * phir Bite kero
 
