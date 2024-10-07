@@ -1,8 +1,6 @@
 # COLLABORATE PROJECT
 
-
-Hello Sister How are you
-
+Hello Sister! How are you, Now Learn
 
 ## Siikho
 
